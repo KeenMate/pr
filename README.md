@@ -1,2 +1,4 @@
-# pr
-PR
+# KEEN|MATE PR Repository
+With logo images and other stuff
+
+# ALL RIGHTS RESERVED, DO NOT USE ANY OF FILES HERE WITHOUT OUR EXPLICIT PERMISSION TO DO SO
